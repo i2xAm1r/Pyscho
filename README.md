@@ -1,4 +1,4 @@
-
+https://sub.spotifyxgirl.shop/fyKm15Wax30S7To9zUE503kYUgHk/e7113773-fac5-4a44-9d35-7c8904af94a5/#Amo-hadi-1
   ![image](https://github.com/user-attachments/assets/d634f69f-647e-414b-ad9c-5de3cc47aeff)
 
 Pyscho Version 1.0.0 ⚡<br>
